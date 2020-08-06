@@ -1,2 +1,0 @@
-# Qarazhuldyz-
-wwhwjwuwu
