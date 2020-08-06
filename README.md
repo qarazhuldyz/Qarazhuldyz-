@@ -1,3 +1,0 @@
-# Qarazhuldyz-
-wwhwjwuwu
-Story.txtz
